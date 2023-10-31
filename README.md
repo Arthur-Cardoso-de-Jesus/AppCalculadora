@@ -6,6 +6,8 @@
 
 
 ### Layout mobile:
+https://github.com/Arthur-Cardoso-de-Jesus/AppCalculadora/assets/83030989/12103548-82b9-43ce-9101-26968d7019a4
+
 
 <br><br>
 
